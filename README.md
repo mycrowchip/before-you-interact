@@ -1,1 +1,3 @@
-# before-you-interact
+- call me **dean** or *costello* or any old names you know me by
+- i don't really have a dni and i don't block people, feel free to block me if you don't fw me
+- i'm bodily 15
