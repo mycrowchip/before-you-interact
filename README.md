@@ -1,3 +1,4 @@
 - call me **dean** or *costello* or any old names you know me by
 - i don't really have a dni and i don't block people, feel free to block me if you don't fw me
 - i'm bodily 15
+- if you wanna get my attention whisp is pref since i'm usually afk and i'm always on the personal/whisper tabs
